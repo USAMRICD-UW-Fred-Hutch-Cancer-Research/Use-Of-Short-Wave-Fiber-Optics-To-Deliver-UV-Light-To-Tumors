@@ -10,6 +10,10 @@ Prepare multiple hazmat waste buckets with 409 sprayed all around inside.
 
 Prepare 2 endospcopes with attached low-frequency fiber optic strands and UV source. Fiber strand terminates at 1 cm from endoscope tip. Adjust for surgery.
 
+Prepare 1 endoscope with hydrogen peroxide spray tube and UV. 000
+
+Coat patients mouth, throat, and airways with carmex.
+
 Instruct patient to "not swallow" ANYTHING during surgery. Instruct patient in coughing or vomiting virus load into waste bucket. 
 
 Prepare 5 cups nutmeg, 5 cups turmeric, & 3 cups creatine with 1 gallon distilled water.
@@ -42,11 +46,13 @@ Pull meltdown through neosporin coated nasal channel AS SLOW AS POSSIBLE.
 
 IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
 
-Fill sinus with neosporin
+Fill sinus with neosporin.
 
-
+Stick new endoscope into nasal cavity with hydrogen peroxide. Aggresively spray hydrogen peroxide into wound until clean solution is rinsing out for 4 minutes.
 
 Use elongated tube through nasal to fill vesicle tumor with neosporin. Fill with pressure.
 
+Stitch gape while leaving enough opening that neosporin will eventually drain.
 
-Hofstad Bouboublis
+Method used successfully 317 times by FADM Bouboublis within last 7 days. - USN
+
