@@ -50,9 +50,23 @@ Fill sinus with neosporin.
 
 Stick new endoscope into nasal cavity with hydrogen peroxide. Aggresively spray hydrogen peroxide into wound until clean solution is rinsing out for 4 minutes.
 
-Use elongated tube through nasal to fill vesicle tumor with neosporin. Fill with pressure.
+REPEAT 3 TIMES {Use elongated tube through nasal to fill vesicle tumor with neosporin. Fill with pressure.
+
+Rinse aggressively with hydrogen peroxide.}
+
+Fill wound with neosporin with pressure.
 
 Stitch gape while leaving enough opening that neosporin will eventually drain.
+
+Patients must take daily to exit Matrix (wound healing & prevent re-infection):
+1000mg AlnayaSN
+300mg TsinKX with food
+mg HaldEX
+mg MusKT
+mg KureaSH
+1 Gallon distilled water
+
+http://virustreatmentcenters.com/generic-antiviral-medication/
 
 Method used successfully 317 times by FADM Bouboublis within last 7 days. - USN
 
