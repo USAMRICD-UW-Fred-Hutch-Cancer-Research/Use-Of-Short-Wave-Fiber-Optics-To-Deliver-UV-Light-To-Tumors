@@ -5,7 +5,7 @@ Inserting a fiber optic strand into a tumor is a minimally invasive method of sa
 
 https://www.lasercomponents.com/de-en/news/transmission-of-uv-light-with-optical-fiber/
 
-## Surgery
+## Brain Tumer Removal Surgery
 Prepare multiple hazmat waste buckets with 409 sprayed all around inside. 
 
 Prepare 2 endospcopes with attached low-frequency fiber optic strands and UV source. Fiber strand terminates at 1 cm from endoscope tip. Adjust for surgery.
