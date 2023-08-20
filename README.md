@@ -59,11 +59,17 @@ Fill wound with neosporin with pressure.
 Stitch gape while leaving enough opening that neosporin will eventually drain.
 
 Patients must take daily to exit Matrix (wound healing & prevent re-infection):
+
 1000mg AlnayaSN
+
 300mg TsinKX with food
+
 mg HaldEX
+
 mg MusKT
+
 mg KureaSH
+
 1 Gallon distilled water
 
 http://virustreatmentcenters.com/generic-antiviral-medication/
