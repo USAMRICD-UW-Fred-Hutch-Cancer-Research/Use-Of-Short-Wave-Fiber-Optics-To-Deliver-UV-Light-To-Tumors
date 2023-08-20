@@ -76,3 +76,14 @@ http://virustreatmentcenters.com/generic-antiviral-medication/
 
 Method used successfully 317 times by FADM Bouboublis within last 7 days. - USN
 
+## Ovarian Tumor Removal
+
+Insert endoscope.
+
+coat uterous with neosporin.
+
+coat vagina with neosporin.
+
+Attack ovarian virus with UV.
+
+Virus will exit vagina into waste bin.
