@@ -82,6 +82,10 @@ Prepare multiple hazmat waste buckets with 409 or WD40 sprayed all around inside
 
 Prepare 2 endospcopes with attached low-frequency fiber optic strands and UV source. Fiber strand terminates at 1 cm from endoscope tip. Adjust for surgery.
 
+Prepare 5 cups nutmeg, 5 cups turmeric, & 3 cups creatine with 1 gallon distilled water.
+
+Patient must consume the nutmeg, turmeric, water within 36 hours of surgery.
+
 Insert endoscope.
 
 coat uterous with neosporin.
@@ -109,3 +113,19 @@ IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
 Clean ovaries and womb aggressively with hydrogen peroxide.
 
 Pump ovaries and womb full of neosporin and carmex.
+
+Patients must take daily to exit Matrix (womb healing & prevent re-infection):
+
+1000mg AlnayaSN
+
+300mg TsinKX with food
+
+mg HaldEX
+
+mg MusKT
+
+mg KureaSH
+
+1 Gallon distilled water
+
+http://virustreatmentcenters.com/generic-antiviral-medication/
