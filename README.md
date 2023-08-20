@@ -28,10 +28,21 @@ Use nasal endoscope to press fiber into flesh ~4mm from gape. Power UV on to cre
 
 The intention is to drive the viral load from the vesicle tumor.
 
-Assist the patient through coughing up the virus. Procedure is done over waste bin.
+Assist the patient through coughing up the virus. Procedure is done over waste bin. Leave UV on.
 
-As soon as the virus load is in the bin, administer the pill. Patients family often try to steal pills. Give them their own and let them watch on zoom.
+As soon as the virus load is in the bin, administer neosporin into the sinuses to create barrier for surgeon.
+
+Enter vesicle tumor with endoscope starting with fiber.
+
+5 minutes: Hit every inside surface of vesicle sack with UV.
+
+The sack with melt onto the endoscope.
+
+Pull meltdown through neosporin coated nasal channel AS SLOW AS POSSIBLE.
+
+IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
 
 Use elongated tube through nasal to fill vesicle tumor with neosporin. Fill with pressure.
+
 
 Hofstad Bouboublis
