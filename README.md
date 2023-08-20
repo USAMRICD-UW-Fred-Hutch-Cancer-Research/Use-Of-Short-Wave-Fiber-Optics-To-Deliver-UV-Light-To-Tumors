@@ -78,12 +78,34 @@ Method used successfully 317 times by FADM Bouboublis within last 7 days. - USN
 
 ## Ovarian Tumor Removal
 
+Prepare multiple hazmat waste buckets with 409 or WD40 sprayed all around inside. 
+
+Prepare 2 endospcopes with attached low-frequency fiber optic strands and UV source. Fiber strand terminates at 1 cm from endoscope tip. Adjust for surgery.
+
 Insert endoscope.
 
 coat uterous with neosporin.
 
 coat vagina with neosporin.
 
+coat inner thighs and pubic area with carmex.
+
 Attack ovarian virus with UV.
 
 Virus will exit vagina into waste bin.
+
+Enter ovary with UV endoscope.
+
+Enter vesicle tumor with endoscope starting with fiber.
+
+5 minutes: Hit every inside surface of vesicle sack with UV.
+
+The sack with melt onto the endoscope.
+
+Pull meltdown through neosporin coated vagina channel AS SLOW AS POSSIBLE.
+
+IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
+
+Clean ovaries and womb aggressively with hydrogen peroxide.
+
+Pump ovaries and womb full of neosporin and carmex.
