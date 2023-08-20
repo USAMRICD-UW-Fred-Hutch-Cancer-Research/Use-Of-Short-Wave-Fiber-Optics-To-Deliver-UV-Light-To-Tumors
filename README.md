@@ -42,6 +42,10 @@ Pull meltdown through neosporin coated nasal channel AS SLOW AS POSSIBLE.
 
 IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
 
+Fill sinus with neosporin
+
+
+
 Use elongated tube through nasal to fill vesicle tumor with neosporin. Fill with pressure.
 
 
