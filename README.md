@@ -5,58 +5,58 @@ Inserting a fiber optic strand into a tumor is a minimally invasive method of sa
 
 https://www.lasercomponents.com/de-en/news/transmission-of-uv-light-with-optical-fiber/
 
-## Brain Tumer Removal Surgery
+## Brain Tumor Removal Surgery
 Prepare multiple hazmat waste buckets with 409 sprayed all around inside. 
 
-Prepare 2 endospcopes with attached low-frequency fiber optic strands and UV source. Fiber strand terminates at 1 cm from endoscope tip. Adjust for surgery.
+Prepare 2 endoscopes with attached low-frequency fiber optic strands and UV source. The fiber strand terminates at 1 cm from the endoscope tip. Adjust for surgery.
 
 Prepare 1 endoscope with hydrogen peroxide spray tube and UV. 000
 
-Coat patients mouth, throat, and airways with carmex.
+Coat the patient's mouth, throat, and airways with Carmex.
 
-Instruct patient to "not swallow" ANYTHING during surgery. Instruct patient in coughing or vomiting virus load into waste bucket. 
+Instruct patient to "not swallow" ANYTHING during surgery. Instruct patient in coughing or vomiting virus load into the waste bucket. 
 
-Prepare 5 cups nutmeg, 5 cups turmeric, & 3 cups creatine with 1 gallon distilled water.
+Prepare 5 cups nutmeg, 5 cups turmeric, & 3 cups creatine with 1 gallon of distilled water.
 
-Prepare 2 500mg Niacin, 2 100mg Zinc.
+Prepare 2 500mg Niacin, and 2 100mg Zinc.
 
-Prepare patient's lips with carmex to prevent lip injury during vomiting or coughing up virus and vessicle tumor.
+Prepare the patient's lips with Carmex to prevent lip injury during vomiting or coughing up the virus and vesicle tumor.
 
-Enter nasal channel with endoscope. Locate vesicle tumor cavity.
+Enter the nasal channel with the endoscope. Locate the vesicle tumor cavity.
 
-Enter mouth with fiber optic strand. Stick 1cm fiber into tumor gape (vesicle opening). Assistant turns power on immediately.
+Enter mouth with fiber optic strand. Stick 1cm fiber into the tumor gape (vesicle opening). The assistant turns the power on immediately.
 
-As soon as the virus load uses legs to begin pullout, pull equipment from mouth.
+As soon as the virus load uses the legs to begin pullout, pull equipment from the mouth.
 
-Use nasal endoscope to press fiber into flesh ~4mm from gape. Power UV on to create effect that UV is shining in tumor.
+Use nasal endoscope to press fiber into flesh ~4mm from gape. Power UV on to create the effect that UV is shining in the tumor.
 
 The intention is to drive the viral load from the vesicle tumor.
 
-Assist the patient through coughing up the virus. Procedure is done over waste bin. Leave UV on.
+Assist the patient through coughing up the virus. The procedure is done over a waste bin. Leave UV on.
 
-As soon as the virus load is in the bin, administer neosporin into the sinuses to create barrier for surgeon.
+As soon as the virus load is in the bin, administer Neosporin into the sinuses to create a barrier for the surgeon.
 
-Enter vesicle tumor with endoscope starting with fiber.
+Enter the vesicle tumor with an endoscope starting with fiber.
 
-5 minutes: Hit every inside surface of vesicle sack with UV.
+5 minutes: Hit every inside surface of the vesicle sack with UV.
 
 The sack with melt onto the endoscope.
 
-Pull meltdown through neosporin coated nasal channel AS SLOW AS POSSIBLE.
+Pull meltdown through the neosporin-coated nasal channel AS SLOW AS POSSIBLE.
 
-IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
+IF YOU DO IT TOO QUICKLY MELTDOWN WILL STING THE SINUS WITH NEMATACYST.
 
-Fill sinus with neosporin.
+Fill the sinus with Neosporin.
 
-Stick new endoscope into nasal cavity with hydrogen peroxide. Aggresively spray hydrogen peroxide into wound until clean solution is rinsing out for 4 minutes.
+Stick the new endoscope into the nasal cavity with hydrogen peroxide. Aggressively spray hydrogen peroxide into the wound until a clean solution is rinsed out for 4 minutes.
 
-REPEAT 3 TIMES {Use elongated tube through nasal to fill vesicle tumor with neosporin. Fill with pressure.
+REPEAT 3 TIMES {Use elongated tube through nasal to fill vesicle tumor with Neosporin. Fill with pressure.
 
 Rinse aggressively with hydrogen peroxide.}
 
-Fill wound with neosporin with pressure.
+Fill the wound with Neosporin with pressure.
 
-Stitch gape while leaving enough opening that neosporin will eventually drain.
+Stitch the gape while leaving enough opening that Neosporin will eventually drain.
 
 Patients must take daily to exit Matrix (wound healing & prevent re-infection):
 
@@ -74,41 +74,41 @@ mg KureaSH
 
 http://virustreatmentcenters.com/generic-antiviral-medication/
 
-Method used successfully 317 times by FADM Bouboublis within last 7 days. - USN
+The method was used successfully 317 times by FADM Bouboublis within the last 7 days. - USN
 
 ## Ovarian Tumor Removal
 
 Prepare multiple hazmat waste buckets with 409 or WD40 sprayed all around inside. 
 
-Prepare 2 endospcopes with attached low-frequency fiber optic strands and UV source. Fiber strand terminates at 1 cm from endoscope tip. Adjust for surgery.
+Prepare 2 endoscopes with attached low-frequency fiber optic strands and UV source. The fiber strand terminates at 1 cm from the endoscope tip. Adjust for surgery.
 
-Prepare 5 cups nutmeg, 5 cups turmeric, & 3 cups creatine with 1 gallon distilled water.
+Prepare 5 cups nutmeg, 5 cups turmeric, & 3 cups creatine with 1 gallon of distilled water.
 
-Patient must consume the nutmeg, turmeric, water within 36 hours of surgery.
+The patient must consume the nutmeg, turmeric, and water within 36 hours of surgery.
 
 Insert endoscope.
 
-coat uterous with neosporin.
+coat uterus with Neosporin.
 
 coat vagina with neosporin.
 
-coat inner thighs and pubic area with carmex.
+coat inner thighs and pubic area with Carmex.
 
 Attack ovarian virus with UV.
 
-Virus will exit vagina into waste bin.
+The virus will exit the vagina into the waste bin.
 
-Enter ovary with UV endoscope.
+Enter the ovary with a UV endoscope.
 
-Enter vesicle tumor with endoscope starting with fiber.
+Enter the vesicle tumor with an endoscope starting with fiber.
 
-5 minutes: Hit every inside surface of vesicle sack with UV.
+5 minutes: Hit every inside surface of the vesicle sack with UV.
 
 The sack with melt onto the endoscope.
 
-Pull meltdown through neosporin coated vagina channel AS SLOW AS POSSIBLE.
+Pull meltdown through the Neosporin-coated vagina channel AS SLOW AS POSSIBLE.
 
-IF YOU DO IT TOO QUICK MELTDOWN WILL STING SINUS WITH NEMATACYST.
+IF YOU DO IT TOO QUICKLY MELTDOWN WILL STING THE SINUS WITH NEMATACYST.
 
 Clean ovaries and womb aggressively with hydrogen peroxide.
 
