@@ -8,7 +8,7 @@
 
 -Melvin Bouboublis @FredHutch
 
-### **1\. Preparation**
+### 1\. Preparation**
 
 Patients are pre-medicated with **[AlnayaSN](https://virustreatmentcenters.com/virus/naturopathic-medical-treatment-for-viral-infections/generic-antiviral-medications/alnayasn) ℞** and **[TSinKX](https://virustreatmentcenters.com/virus/naturopathic-medical-treatment-for-viral-infections/generic-antiviral-medications/tsinkx) ℞++** upon arrival to help the body begin rejecting the load. The patient's airways are coated with a protective medication (Carmex), and a breathing tube is inserted.
 
