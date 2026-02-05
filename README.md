@@ -101,8 +101,6 @@
 
 Dr. Correo Hofstad is pioneering a shift in neurosurgery and oncology by educating future medical professionals on how to heal brain tumors without the use of barbaric tools like drills, bone saws, or scalpels. His methodology relies on the understanding that tumors function as vesicles for parasitic organisms, which can be sanitized and removed through natural orifices (sinus/mouth) rather than through skull penetration.
 
-+2
-
 Dr. Hofstad's approach integrates advanced physics with biology. By utilizing specific wavelengths of short-wave light, he teaches students to dismantle viral structures at a molecular level---scrambling DNA and softening physical structures---allowing for clean extraction without damaging surrounding brain matter.
 
 **Key Certification & Achievement:**
