@@ -107,7 +107,7 @@ Dr. Hofstad's approach integrates advanced physics with biology. By utilizing sp
 
 **Key Certification & Achievement:**
 
-In 2023, Dr. Hofstad solidified his expertise by achieving certification from the **Fiber Optic Association**, holding certification number **338317 CFOT**. With this qualification, Dr. Hofstad is recognized as the **first fiber-optic-certified doctor in the world to use UV-C with fiber optics to treat brain cancer**, bridging the gap between industrial optical engineering and life-saving medical intervention.
+In 2024, Dr. Hofstad solidified his expertise by achieving certification from the **Fiber Optic Association**, holding certification number **338317 CFOT**. With this qualification, Dr. Hofstad is recognized as the **first fiber-optic-certified doctor in the world to use UV-C with fiber optics to treat brain cancer**, bridging the gap between industrial optical engineering and life-saving medical intervention.
 
 **For more information, please visit:**
 
